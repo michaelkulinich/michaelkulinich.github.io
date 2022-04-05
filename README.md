@@ -1,1 +1,0 @@
-# michaelkulinich.github.io
